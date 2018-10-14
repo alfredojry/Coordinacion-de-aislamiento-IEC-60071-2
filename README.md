@@ -1,0 +1,1 @@
+# Coordinacion-de-aislamiento-IEC-60071-2
